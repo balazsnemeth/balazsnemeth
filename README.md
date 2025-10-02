@@ -3,7 +3,7 @@
 </h1>
 
 <p align='center'>
-  <strong>Proud of our Rollout IT team of 35—making our mark in edtech! 💪🚀 </strong>
+  <strong>Proud of our Rollout IT team of 45—making our mark in edtech! 💪🚀 </strong>
 </p>
 
 <p align='center'>
